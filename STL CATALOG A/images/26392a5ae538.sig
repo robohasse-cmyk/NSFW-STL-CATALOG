@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Cow girl and Deer girl/1.webp:1647162031970813751:56050|500|t1

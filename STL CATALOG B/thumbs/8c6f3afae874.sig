@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/VARIOUS/Zentreya - EN Vtuber/Removable Rock (Tail Support)/RemovableRock.png:1752956433000000000:902091|500|t1

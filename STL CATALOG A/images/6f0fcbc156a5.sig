@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Ahri/Untitled_FullQuality.png:1766580077000000000:8322309|500|t1

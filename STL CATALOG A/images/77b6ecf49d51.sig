@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Officer Rhu/Pokemon   Gardevoir Nun/Gardenun-preview/gard-futa.png:1743253972000000000:2101635|500|t1

@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/VARIOUS/Zentreya - EN Vtuber/Decals/Zentreya_Decal.png:1751357792000000000:205048|500|t1

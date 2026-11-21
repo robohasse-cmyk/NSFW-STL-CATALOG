@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Akeno High school - Momoji/render/hi.png:1688432284000000000:8999291|500|t1

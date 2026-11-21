@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Ranni Elden Ring_Digital Dark/31.png:1794272418448755503:5859716|500|t1

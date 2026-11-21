@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/cammy/Render/Cammy.png:1758798434000000000:7681590|500|t1

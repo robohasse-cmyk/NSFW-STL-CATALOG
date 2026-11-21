@@ -1,0 +1,1 @@
+/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Officer Rhu/Dragon Maid   Lucoa (Quetzalcoatl Warrior)/Quetzalcoatl-Previews/lcoatl-futa.png:1740739653000000000:1788255|500|t1
