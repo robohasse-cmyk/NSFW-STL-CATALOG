@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Jose Sculpt/Patel Goth Silvervale - Josei Sculpt/1.jpg:1771016973637737274:54065|500|t1

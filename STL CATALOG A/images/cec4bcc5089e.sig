@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Waifu Studios/Street Fighter - Chun-Li-1/1.jpg:1746475602000000000:614517|500|t1

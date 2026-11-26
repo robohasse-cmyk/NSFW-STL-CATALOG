@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Yoru Studio/Pokemon - Misty/Render/Adobe-Express-file.png:1788760446000000000:5122502|500|t1

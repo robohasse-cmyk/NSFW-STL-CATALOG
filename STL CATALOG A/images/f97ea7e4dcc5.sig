@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Gr8/DrStone - Kohaku - 3D Print Model/Render/Kohaku_V1_0.png:1759528396000000000:3616486|500|t1

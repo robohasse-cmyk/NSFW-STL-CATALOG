@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Do-s Official/Render/dasdw.png:1665431508000000000:27046813|500|t1

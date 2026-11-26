@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/VARIOUS/Hybris Studio - CC from Code Geass - 3D Print Model/CC_2D_Assets/Base_00.png:1768721554000000000:1347103|500|t1

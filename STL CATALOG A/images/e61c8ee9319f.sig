@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Rushzilla/Goth Frieren_Rushzilla/Screenshot_573.png:1755195326000000000:906044|500|t1

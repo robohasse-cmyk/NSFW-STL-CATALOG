@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Chagarin/Sexy Ghost/Chagarin - Sexy Ghost.png:1759714753000000000:4121415|500|t1

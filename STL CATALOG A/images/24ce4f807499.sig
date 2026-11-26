@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Gamer Girl 69/Gamer Girl 69 wallpapers/1.png:1760848335000000000:1216704|500|t1

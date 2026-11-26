@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/VARIOUS/!NIKKE/Nikke Goddess Of Victory Red Hood/2D Assets/Artboard 2.png:1737364934000000000:5716951|500|t1

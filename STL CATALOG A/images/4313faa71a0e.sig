@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Daphne Pack/Wallpapers Daphne/01.png:1699420632000000000:6697977|500|t1

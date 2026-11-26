@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Rushzilla/Rosalina_Rushzilla/1.jpg:1640090840000000000:120462|500|t1

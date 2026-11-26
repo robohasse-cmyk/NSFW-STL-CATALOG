@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Officer Rhu/Ghost Waifu/1.jpg:1731440331000000000:262533|500|t1

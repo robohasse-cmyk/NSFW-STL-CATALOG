@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Jose Sculpt/Purrestcat - Josei Sculpt/1.jpg:1771016767080291748:51374|500|t1

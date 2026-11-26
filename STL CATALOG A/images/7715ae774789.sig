@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Elleg Nikke/Render/Elleg.png:1730039976000000000:6016845|500|t1

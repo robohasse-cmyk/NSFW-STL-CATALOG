@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Gr8/Street Fighter - Cammy/Render/All_in_One_Cammy.png:1757927826000000000:2612069|500|t1

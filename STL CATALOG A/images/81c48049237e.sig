@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/CA_3D_Studios/Cammy White Schoolgirl - Street Fighter + Bust - CA 3D Studios/0.jpg:1753913440826013565:2066001|500|t1

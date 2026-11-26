@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/meshy/November/Anime_Fashionista_1003210703_texture_obj/Anime_Fashionista_1003210703_texture.png:1759525627000000000:3152591|500|t1

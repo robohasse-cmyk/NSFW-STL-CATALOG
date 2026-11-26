@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Officer Rhu/Rosalina Ultra Thicc/thumbs/0.png:1794295127383297052:2525305|500|t1

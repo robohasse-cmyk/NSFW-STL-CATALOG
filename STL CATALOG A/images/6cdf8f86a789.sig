@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Cow Girl Pack/00.jpg:1780870697842174697:498751|500|t1

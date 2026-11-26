@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Yumeko Jabami - Kakegurui - 2 versions - Momoji/0.png:1689222847000000000:59570146|500|t1

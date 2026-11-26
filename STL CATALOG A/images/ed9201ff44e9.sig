@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Texelion/Syx Texelion/1.jpg:1647160891120756149:954461|500|t1

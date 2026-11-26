@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Sister of Battle Pack/01-a.png:1794279531391898181:8829232|500|t1

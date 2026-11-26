@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Waifu Studios/Zelda nsfw/1.jpg:1755368551573215485:550241|500|t1

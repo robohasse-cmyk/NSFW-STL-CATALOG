@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Jessie (unofficial)/SFW/Jessie.png:1722198749000000000:4527216|500|t1

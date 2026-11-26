@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Chun Li/Wallpapers Chun Li/00.jpg:1728173336000000000:354603|500|t1

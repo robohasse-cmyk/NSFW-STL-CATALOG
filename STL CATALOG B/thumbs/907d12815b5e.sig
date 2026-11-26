@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/VARIOUS/Shuten Douji_no split_STL/Shuten Douji_no split_STL/00.jpg:1611080484000000000:686978|500|t1

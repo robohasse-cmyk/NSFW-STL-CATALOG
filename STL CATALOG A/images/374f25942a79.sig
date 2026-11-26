@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/General Buta/Hex Maniac/GeneralButa - Hex Maniac/1.jpg:1649146301315471649:74021|500|t1

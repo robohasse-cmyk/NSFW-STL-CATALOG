@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Rushzilla/Tifa_Rushzilla/1.png:1645818662000000000:717754|500|t1

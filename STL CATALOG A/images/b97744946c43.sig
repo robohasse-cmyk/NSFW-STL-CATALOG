@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Texelion/Scully Xfiles/scully_screenshots/scully_jacket_01.png:1763068890000000000:1117819|500|t1

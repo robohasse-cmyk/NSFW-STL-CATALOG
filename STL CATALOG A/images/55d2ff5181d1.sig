@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Freyas Fantasys/Gold Ship/RENDERS/GoldShip copy.jpg:1758140930000000000:1498317|500|t1

@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Chagarin/Kitten Cafe/01_Kitten_Cafe.png:1737714920000000000:2079358|500|t1

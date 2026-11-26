@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Rushzilla/Zelda Selfie_Rushzilla/1.jpg:1698090267000000000:87330|500|t1

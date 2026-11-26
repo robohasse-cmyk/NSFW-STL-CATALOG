@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Rubim/Kill la Kill Ryuko Matoi/thumbs/0.jpg:1794296489105629307:280180|500|t1

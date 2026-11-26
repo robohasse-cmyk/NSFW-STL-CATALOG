@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Kylie Griffin/render/kylie.png:1753370408000000000:7883835|500|t1

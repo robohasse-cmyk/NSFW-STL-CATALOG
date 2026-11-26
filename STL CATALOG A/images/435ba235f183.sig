@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Igawa Sakura Taimanin/img/ua.png:1794271418772143867:7368643|500|t1

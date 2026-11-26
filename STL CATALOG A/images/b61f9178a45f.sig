@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Texelion/Santa/santa_pinup_screenshots/santa_pinup_clothed_S1_01.png:1765042544000000000:1703188|500|t1

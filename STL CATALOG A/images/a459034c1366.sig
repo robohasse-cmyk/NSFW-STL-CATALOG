@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/MAMA Shiranuy - Momoji/1.png:1759715562000000000:7622748|500|t1

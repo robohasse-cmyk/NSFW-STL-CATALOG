@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Slave Cow Girl Daisy Melons Girl/00.jpg:1725596857000000000:498751|500|t1

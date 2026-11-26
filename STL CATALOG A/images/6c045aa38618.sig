@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Kuru Figures/Tsukishiro Yanagi - Zenless Zone Zero - 3D Print Model/Kuru Figures - Tsukishiro Yanagi - Zenless Zone Zero - 3D Print Model 0.png:1760075926000000000:9729240|500|t1

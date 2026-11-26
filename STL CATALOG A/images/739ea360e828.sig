@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Purah (Zelda)/01.png:1794272174042973823:5289056|500|t1

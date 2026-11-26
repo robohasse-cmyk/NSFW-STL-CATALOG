@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Yukikaze - Taimanin - Momoji/0untsitlessd.png:1678715135000000000:22341208|500|t1

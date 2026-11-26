@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Rushzilla/Tharja_Rushzilla/Rushzilla-Tharja.jpg:1758238462000000000:88899|500|t1

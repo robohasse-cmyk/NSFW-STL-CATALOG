@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Texelion/Tifa_dildo_by_texelion/images/final_tifa_dildo_01.png:1761784884000000000:4063950|500|t1

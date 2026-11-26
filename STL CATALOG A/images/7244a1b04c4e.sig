@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Digital Dark Pinups/Vault Girl/Wallpapers Vault Girl/a.png:1664495732000000000:6060489|500|t1

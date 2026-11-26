@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/3DMomoji/Morrigam/Render/Morrigam.png:1731192061000000000:5442957|500|t1

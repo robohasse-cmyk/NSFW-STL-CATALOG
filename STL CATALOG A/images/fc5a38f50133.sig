@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Youngboo/Hagakure/img/Hagakure.jpg:1751665660000000000:3608407|500|t1

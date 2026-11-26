@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Officer Rhu/Super Mario   Boosette   3D Print Model/Boo-previews/Boo-buldge.png:1743188608000000000:1934117|500|t1

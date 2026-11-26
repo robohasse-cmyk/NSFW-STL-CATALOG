@@ -1,1 +1,0 @@
-/Volumes/Toshiba4TB/STLS_NSFW/ARTISTS/Obstetrician/Anime KINTARO Beauty/0.png:1794294211415562833:55234|500|t1
